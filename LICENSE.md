@@ -1,4 +1,4 @@
-# 
+# نخبة PancakeSwap bot التداول وظائف إضافية for Mac OS | احترافي PancakeSwap bot التداول وظائف إضافية for PC Windows. Featuring واجهة برمجة التطبيقات للتبادل اللامركزي and واجهة برمجة التطبيقات للتبادل المركزي — optimized for maximum performance.
 
 
 
